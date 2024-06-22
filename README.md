@@ -7,7 +7,7 @@
 - i am in 3rd year now
 - 💞️ I’m looking to for interships and work
 - 📫 here are my cotanct details
-- 9580639887 || er.akshatparmar5@gmail.com 
+- 8840772968 || er.akshatparmar5@gmail.com 
 
 <!---
 akshat94116/akshat94116 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
